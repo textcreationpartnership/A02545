@@ -35,7 +35,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Holy obseruations. Lib. 1. Also some fewe of Dauids Psalmes metaphrased, for a taste of the rest. By
+
+1. To the right Honorable, EDWARD Lord Denny, Baron of Waltham, my moſt boūtifull Patron, Grace & PEACE.
+
 **Types of content**
 
   * There are 413 **verse** lines!
